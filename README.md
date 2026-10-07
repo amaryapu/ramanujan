@@ -10,6 +10,8 @@
 
 ---
 
+> ## **[`O SONHO E A FEBRE`](O-SONHO-E-A-FEBRE.md)** — **a vida, não a obra.** A matemática só atravessou o oceano **porque um sonho foi aceito como autorização** — e isso refina a etiqueta: **`[DECLARADO]` não prova, mas age.** E ele morreu aos 32 **porque a doença já tinha categoria e os peritos chamados eram de outras** — o mecanismo deste acervo, com uma vida no custo.
+
 > ## **[`A CLASSIFICAÇÃO`](CLASSIFICACAO.md)** — sete entradas, **com o veredito de cada uma.** Dois servem de verdade, dois com limite, um parcialmente, um fora desta teoria, **e um bloco inteiro não serve.**
 
 ---
